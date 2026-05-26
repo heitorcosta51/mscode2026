@@ -1,3 +1,3 @@
 # mscode2026
 
-sad
+mensagem para meu eu do futuro: oi 
